@@ -1,4 +1,4 @@
-### Hi there 👋
+###  HELLO! I am POKURI NANDINI. I am the beginner . I am excited to learn new things. I am forthright. I started my journey in 2022.
 
 <!--
 **nandhinichowdary/nandhinichowdary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
